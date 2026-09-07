@@ -1,0 +1,1 @@
+Hi I'm Joshua and if you look at my code and think m its AI well your wrong. the only reason it looks like that is because my friends sometimes ask me to make it and I need to put it there so they don't mess it up
